@@ -1,15 +1,19 @@
-She opens where dawn keeps its earliest vows,
+She blooms softly where dawn keeps its first vow,  
+A lyric folded in moonlight and the tender gold of memory.  
 
-A Lyric folded from moonlight and the soft gold of memory,
+Her pen whispers like petals brushing the breath of morning —  
+Those that lingered, and those that passed,  
+Her thoughts drink the patient, quiet comfort of the earth.  
 
-Petals whisper of mornings that stayed and mornings that went,
+Then, a cat — gentle as first snow —  
+Steps lightly along the poem’s edge.  
+Its gaze does not burn, but settles in stillness.  
 
-Roots drink the slow consolation of earth’s patient hush,
+It is a beauty, mild and unassuming,  
+Teaching the world how to feel —  
 
-Her light does not scorch but settles, tender as first snow,
+**LyrigCats**  
 
-Beauty lingers — gentle, unassuming — and teaches the world to know—
-
-**LyrigCats**
-
-a luminous bloom that leaves the world softer for its song.
+The girl, the poem, and her silent companion;  
+A luminous flower,  
+Whose verse leaves the world softer than before.  
