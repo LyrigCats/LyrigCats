@@ -16,4 +16,4 @@ Teaching the world how to feel —
 
 The girl, the poem, and her silent companion;  
 A luminous flower,  
-Whose verse leaves the world softer than before.  
+Whose verse leaves the world gentler, as if written anew.    
