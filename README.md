@@ -10,6 +10,6 @@ Her light does not scorch but settles, tender as first snow,
 
 Beauty lingers — gentle, unassuming — and teaches the world to know—
 
-**LyricGats**
+**LyrigCats**
 
 a luminous bloom that leaves the world softer for its song.
